@@ -1,4 +1,4 @@
 ### Dong Heon Han
-Contract: dongheon@umich.edu
+Contact: dongheon@umich.edu
 
 
